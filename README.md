@@ -6,3 +6,5 @@
 Снюсовой - философ, филантроп, мыслитель, историк
 # Snusovoyi в соцсетях
 [Telegram](https://t.me/snusovoyi)
+[Instagram](https://Instagram.com/snusovoyi)
+[Канал](https://t.me/teymurit)
