@@ -1,2 +1,4 @@
-# snusovoyi.github.io
-snusovoyi.github.io
+# snusovoyi site
+Самый православный сайт в интернете
+
+# Ебать-Копать
